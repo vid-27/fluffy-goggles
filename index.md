@@ -1,5 +1,5 @@
 
-### I'm Vidhya Lakshmi 😎 (she/her)
+## I'm Vidhya Lakshmi 😎 (she/her)
 
 * Passionate about
   1. Computers & Technology
