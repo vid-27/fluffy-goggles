@@ -1,4 +1,3 @@
-## Welcome to my blog
 ### I'm Vidhya Lakshmi 😎 (she/her)
 
 * Passionate about
